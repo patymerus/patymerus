@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning on my own. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me paty.merus@gmail.com
-- 😄 Pronouns: She/her
 - ⚡ Fun fact: I have a very funny Husky that live with 4 cats.
 
 <!---
